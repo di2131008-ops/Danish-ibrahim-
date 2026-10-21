@@ -1,2 +1,2 @@
 # Danish-ibrahim-
-Hair salin
+Hair salon 
